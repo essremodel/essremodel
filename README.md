@@ -148,7 +148,6 @@ Earth Saving Solutions has a long track record of pro-bono work for veterans, di
 - **Victoria Bell** — Director of Contents & Cleaning
 - **Michael Hock** — Business Manager
 - **Leslie Christensen** — Office Manager & Controller
-- **Taylor Weathers** — Office PM & Business Development
 
 ---
 
